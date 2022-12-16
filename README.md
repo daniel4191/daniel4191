@@ -11,7 +11,6 @@ acording to that data was
 4. pyeong teak library - 277
 5. aladin book store - 172
 6. gyo-bo book store - 49
-7. yes24 book store - many (searching)
 
 anyway, that much i loved learn somethings for what i feeling valualble things
 specially i love and a little bit appreciation bible things, history things, self-development things
