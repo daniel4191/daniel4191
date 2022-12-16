@@ -1,4 +1,4 @@
-# Hi there I'm Daniel Choi.come from south korea
+# Hi there I'm Daniel Choi. come from south korea
 ### welcome to my github page👋
 
 
