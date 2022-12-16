@@ -13,7 +13,7 @@ but at least what i can found data of books from like this
 5. aladin book store - 172
 6. gyo-bo book store - 49
 
-anyway, that much i loved learn somethings for what i feeling valualble things
+anyway, that much i love learn somethings for what i feeling valualble things
 specially i love and a little bit appreciation bible things, history things, self-development things
 <!--
 **daniel4191/daniel4191** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
