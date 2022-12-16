@@ -1,8 +1,6 @@
 # Hi there I'm Daniel Choi. come from south korea
 ### welcome to my github page👋
-
-
-My korean blog address here <h2><a href="https://tutorialing.tistory.com/"><button type="button">move to blog</button></a></h2>
+ <h2><a href="https://tutorialing.tistory.com/"><button type="button">My korean blog address here</button></a></h2>
 
 My hobby is read a lots of books
 I can't find old record. but at least what i can found data of books
