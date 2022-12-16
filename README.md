@@ -3,8 +3,9 @@
  <h2><a href="https://tutorialing.tistory.com/"><button type="button">My korean blog address here</button></a></h2>
 
 My hobby is read books
-saddly I can't find whole old record. but at least what i can found data of books from like this
-acording to that data was
+saddly I can't find whole old record. 
+but at least what i can found data of books from like this
+
 1. siheung library - 479
 2. incheon library - 20
 3. seoul library - 37
