@@ -17,7 +17,7 @@ acording to that data was
 7. yes24 book store - many (searching)
 
 anyway, that much i loved learn somethings for what i feeling valualble things
-specially i love bible things, history things, self-development things
+specially i love and a little bit appreciation bible things, history things, self-development things
 
 oneday i will becoming expert whatever what i doing
 so excting for better then now
