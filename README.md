@@ -17,9 +17,6 @@ acording to that data was
 
 anyway, that much i loved learn somethings for what i feeling valualble things
 specially i love and a little bit appreciation bible things, history things, self-development things
-
-oneday i will becoming expert whatever what i doing
-so excting for better then now
 <!--
 **daniel4191/daniel4191** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
