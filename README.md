@@ -30,3 +30,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# My Domain expirience
+
+- Delevery 5years +@
+- restaurant 10years +@
+- retail 4years +@
+- total service 15years +@
+- construction 1year +@
+- web agency 2years +@
+- real-estate 1year +@
