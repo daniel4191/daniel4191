@@ -33,8 +33,8 @@ Here are some ideas to get you started:
 
 # My Domain expirience
 
-- Delevery 5years +@
-- restaurant 10years +@
+- Delevery 3years +@
+- restaurant 3years +@
 - retail 4years +@
 - total service 15years +@
 - construction 1year +@
