@@ -40,3 +40,5 @@ Here are some ideas to get you started:
 - construction 1year +@
 - web agency 2years +@
 - real-estate 1year +@
+- inventory control 1year +@
+- data analysis 2years +@
